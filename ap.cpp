@@ -1,3 +1,0 @@
-hellp
-sdasd
-;sal,sasss
